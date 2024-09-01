@@ -1,6 +1,6 @@
 ![meow2](https://github.com/user-attachments/assets/652e8042-ff2b-4475-850c-39768c1bb9f3)
 
-[strawpage!!](https://rottencom.straw.page)  |  [pronouns!!](pronouns.cc/@slashatsasha)  |  [hoard!!](https://rentry.co/goretoys)
+[strawpage!!](https://rottencom.straw.page)  |  [pronouns!!](https://pronouns.cc/@slashatsasha)  |  [hoard!!](https://rentry.co/goretoys)
 
 generally friendly  ++  no dni  ,  although very block happy
 
