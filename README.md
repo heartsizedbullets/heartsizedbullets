@@ -2,7 +2,7 @@
 
 
 
-[strawpage!!](https://0-day.straw.page)  |  [pronouns!!](https://pronouns.cc/@slashatsasha)  |  [g.ore hoard!!](https://rentry.co/goretoys)
+[strawpage!!](https://watchppldie.straw.page)  |  [pronouns!!](https://pronouns.cc/@slashatsasha)  |  [g.ore hoard!!](https://rentry.co/goretoys)
 
 generally friendly  ++  no dni  ,  although very block happy
 
