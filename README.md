@@ -2,7 +2,6 @@
 
 
 
-[strawpage!!](https://watchppldie.straw.page)  |  [pronouns!!](https://pronouns.cc/@slashatsasha)  | 
 generally friendly  ++  no dni  ,  although very block happy
 
 tcc  ,  slavic queer  ,  metalhead ++ torecore fan :^)
